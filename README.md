@@ -1,1 +1,1 @@
-## KILL ALL NIGGERS KILL ALL NIGGERS
+# my name is finn or zenthic
