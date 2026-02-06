@@ -1,4 +1,4 @@
-My name is Finn or Zenthic, however you can call me anything you'd like. Even "poo."
+My name is Finn or Zenthic. However you can call me anything you'd like.
 
 I'm very interested in the Touhou Project and Len'en Project franchise. The following interests I like: Project Moon, indie games, visual novels, When They Cry, TYPE-MOON, Blue Archive, Hyperdimension Neptunia, Umamusume, Geometry Dash, 100% Orange Juice, and Anime.
 
