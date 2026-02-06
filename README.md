@@ -1,4 +1,4 @@
-My name is Finn or Zenthic. However you can call me anything you'd like.
+Name: Finn or Zenthic. However you can call me anything you'd like.
 
 My special interest is Touhou Project and Len'en Project. Talk to me about it!
 
