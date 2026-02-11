@@ -1,6 +1,6 @@
 -----
 
-Links: [Atabook](https://fivepebbles.atabook.org/) || [Rentry](https://rentry.co/fivepebbles)
+[...](https://rentry.co/fivepebbles)
 
 <img width="1500" height="500" alt="wcq90zvqz3d41" src="https://github.com/user-attachments/assets/995a1da0-b412-4830-8ed7-430d1e7546f1" />
 
