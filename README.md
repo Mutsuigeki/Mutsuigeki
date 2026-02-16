@@ -10,4 +10,4 @@ My name is Finn or Zenthic. However you can call me anything you'd like. My spec
 
 -----
 
-P.S: Officially married to Five Pebbles. I'm working on a response doc.
+P.S: Officially married to Five Pebbles.
