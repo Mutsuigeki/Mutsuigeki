@@ -10,4 +10,7 @@ My name is Finn or Zenthic. However you can call me anything you'd like. My spec
 
 -----
 
+These are my friends:
+<img width="1290" height="343" alt="myfriends" src="https://github.com/user-attachments/assets/39167b8c-20d7-4d96-b363-c249989f874f" />
+
 P.S: Officially married to Five Pebbles.
