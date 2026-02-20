@@ -4,6 +4,8 @@
 
 <img width="1500" height="500" alt="wcq90zvqz3d41" src="https://github.com/user-attachments/assets/995a1da0-b412-4830-8ed7-430d1e7546f1" />
 
+-----
+
 My name is Finn or Zenthic. However you can call me anything you'd like. My special interests are Touhou Project and Len'en Project.
 
 -- = || Interests: Touhou, Len'en, Project Moon, anime, indie games, visual novels || = --
